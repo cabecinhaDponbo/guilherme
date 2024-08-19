@@ -1,15 +1,17 @@
 ### Boas vindas ao meu perfil 
 
 Meu nome é CabecinhaDpombo
+Guerreiro do Limbo,matador de demonios.
+fe no criador 
 
 - Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você pode entrar em contato comigo :mailbox
+### Você pode entrar em contato comigo -email
 
-paludettomarcelo@gmail.com
+00001135214566sp@al.educacao.sp.gov.br
 
 
 
-![images](https://github.com/user-attachments/assets/5680f6f7-7875-40d0-b493-d95f4ab2da8f)
+![icegif-1613](https://github.com/user-attachments/assets/6d6eb655-96c6-4c7f-8ad2-d68788977e4d)
