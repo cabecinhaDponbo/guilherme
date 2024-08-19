@@ -1,7 +1,7 @@
 ### Boas vindas ao meu perfil 
 
 Meu nome é CabecinhaDpombo
-Guerreiro do Limbo,matador de demonios.
+Guerreiro do Limbo,matador de demonios, fä da mia khalifa,e do eneias 
 fe no criador 
 
 - Estou estudando na [Alura](https://www.alura.com.br)
@@ -14,4 +14,4 @@ fe no criador
 
 
 
-![icegif-1613](https://github.com/user-attachments/assets/6d6eb655-96c6-4c7f-8ad2-d68788977e4d)
+![Uploading gbAPRV.gif…]()
