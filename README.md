@@ -18,6 +18,8 @@ fe no criador
 
 00001135214566sp@al.educacao.sp.gov.br
 
+Obrigado pela atencao pode vazar 
+
 
 
 ![pru-prru](https://github.com/user-attachments/assets/dc78df89-e226-42c2-98cd-f30594fceaa5)
