@@ -14,4 +14,4 @@ fe no criador
 
 
 
-![Uploading gbAPRV.gif…]()
+![pru-prru](https://github.com/user-attachments/assets/dc78df89-e226-42c2-98cd-f30594fceaa5)
