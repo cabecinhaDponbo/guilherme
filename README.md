@@ -1,7 +1,7 @@
 ### Boas vindas ao meu perfil 
 
 Meu nome é CabecinhaDpombo
-Guerreiro do Limbo,matador de demonios, fä da mia khalifa-
+Guerreiro do Limbo,matador de demonios
 
 fe no criador 
 
