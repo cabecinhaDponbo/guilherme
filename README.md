@@ -4,6 +4,10 @@ Meu nome é CabecinhaDpombo
 
 Guerreiro do Limbo,matador de demonios
 
+sempre alimentar os pombos.
+
+nao maltratar os pombos por favor seus vermes.
+
 fe no criador 
 
 - Estou estudando na [Alura](https://www.alura.com.br)
