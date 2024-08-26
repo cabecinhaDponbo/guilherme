@@ -1,10 +1,10 @@
 ### Boas vindas ao meu perfil 
 
-Meu nome é CabecinhaDpombo
+_Meu nome é CabecinhaDpombo_
 
-Guerreiro do Limbo,matador de demonios
+_Guerreiro do Limbo,matador de demonios_
 
-sempre alimentar os pombos.
+_sempre alimentar os pombos_
 
 nao maltratar os pombos por favor seus vermes.
 
